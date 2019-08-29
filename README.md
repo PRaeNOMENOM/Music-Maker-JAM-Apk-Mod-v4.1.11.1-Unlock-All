@@ -1,0 +1,2 @@
+# Music-Maker-JAM-Apk-Mod-v4.1.11.1-Unlock-All
+The #1 music creation app. Join the music revolution now! Millions of people use Music Maker JAM to create, remix and share amazing beats and tracks across a wide variety of genres like EDM, trap, hip-hop, house, pop, rock, and more. We make it easy! Pick from thousands of studio-quality loops, beats and samples to start mixing your new track – then share instantly with a worldwide audience. Submit your remixes to our global challenges – grow as a producer, gain a following and get discovered!
